@@ -1,2 +1,2 @@
 # MY-PORTFOLIO-
-Chemistry student, UI/UX design learner, and creative writer interested in technology and innovation.
+Chemistry student, Aspiring UI/UX designer, and creative writer interested in technology and innovation.
